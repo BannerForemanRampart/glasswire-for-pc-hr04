@@ -1,4 +1,4 @@
-# 
+# Enhance GlassWire for PC | GlassWire for Windows with advanced GlassWire for PC | GlassWire for Windows Service | IP-masking + auto-connect, the #1 service. Includes IP-masking
 
 
 
